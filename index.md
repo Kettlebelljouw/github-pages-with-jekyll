@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Welcome to Kettlebelljouw Worktous
 
-I'm glad you are here. I plan to talk about ...
+Let's talk kettlebells
